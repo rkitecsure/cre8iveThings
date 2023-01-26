@@ -9,6 +9,6 @@ My mood:
 
 My favorite color:
 
-> orange
+> orange and grey
 
 Thank you so much for reading! ☺
